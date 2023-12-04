@@ -2,7 +2,7 @@ Here's Why
 
 by Corey Nguyen
 
-In the realm of charitable acts, the notion of giving generously to those in need is widely accepted deeply ingrained in our social fabric. However, when faced with the prospect of donating $5 to James who plans to use it for a final gamble, a logical flaw emerges. While the amount may seem trivial to those who can afford it, the potential consequences of supporting a habit with destructive tendencies must be carefully considered.
+In the realm of charitable acts, the notion of giving generously to those in need is widely accepted and deeply ingrained in our social fabric. However, when faced with the prospect of donating $5 to James who plans to use it for a final gamble, a logical flaw emerges. While the amount may seem trivial to those who can afford it, the potential consequences of supporting a habit with destructive tendencies must be carefully considered.
 
 To begin with, the assumption that this audience, including myself, can comfortably spare $5 presupposes a certain financial stability. Yet, this very stability should prompt a critical evaluation of the intended use of the donation. If James plans to channel the funds into a final gambling spree, the act of giving transforms from a benevolent gesture, , what "real friends" do, to an unwitting endorsement of a harmful habit. It becomes imperative to question the ethics of contributing to an activity that has the potential to perpetuate a cycle of dependency.
 
