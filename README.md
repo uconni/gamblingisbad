@@ -1,6 +1,6 @@
-Here's Why
+## Here's Why
 
-by Corey Nguyen
+### by Corey Nguyen
 
 In the realm of charitable acts, the notion of giving generously to those in need is widely accepted and deeply ingrained in our social fabric. However, when faced with the prospect of donating $5 to James who plans to use it for a final gamble, a logical flaw emerges. While the amount may seem trivial to those who can afford it, the potential consequences of supporting a habit with destructive tendencies must be carefully considered.
 
